@@ -1,6 +1,6 @@
 # Next + Netlify Starter
 
-Ayushi311's edit edit edit
+Ayushi311's edit edit edit edit
 
 Extra2gupta's edit edit
 
